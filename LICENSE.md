@@ -1,4 +1,4 @@
-# 
+# Get the ultimate dexscreener sniper bot with high-frequency MEV Bot for dexscreener sniper bot | gas-optimization & rug-pull-detection. Featuring gas-optimization and
 
 
 
